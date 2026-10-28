@@ -21,11 +21,11 @@ Desenvolver projetos próprios.
 Construir meu portfólio como desenvolvedor e
 Aprender algo novo todos os dias.
 
-📌 SOBRE MIM!!
+📌 O QUE ESTOU FAZENDO!!
 
 👨‍💻 Estudante de Programação de Sistemas.
 
 🌱 Sempre buscando aprender e evoluir.
 
 
-⭐ OBRICADA POR VISITAR MEU PERFIL!!
+⭐ OBRIGADA POR VISITAR MEU PERFIL!!

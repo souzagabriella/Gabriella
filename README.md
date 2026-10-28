@@ -2,6 +2,8 @@ SOBRE MIM!!
 
 💻 Sou estudante de Programação de Sistemas e atualmente estou no 2º ano do Ensino Médio.
 
+👨‍💻 sou de 2008 atualmente tenho 17 anos.
+
 🚀 Estou iniciando minha jornada na programação, desenvolvendo minhas habilidades e aprendendo novas tecnologias.
 
 📚 Atualmente estudando.

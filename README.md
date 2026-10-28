@@ -4,15 +4,15 @@ SOBRE MIM
 
 🚀 Estou iniciando minha jornada na programação, desenvolvendo minhas habilidades e aprendendo novas tecnologias.
 
-📚 Atualmente estudando
+📚 Atualmente estudando.
 
-💻 Lógica de programação
+💻 Lógica de programação.
 
-🧠 Desenvolvimento de sistemas
+🧠 Desenvolvimento de sistemas.
 
-🛠️ Novas linguagens e tecinologias
+🛠️ Novas linguagens e tecinologias.
 
-🎯 Meus objetivos
+🎯MEUS OBIJETIVOS!!
 
 Aprimorar meus conhecimentos em programação.
 Desenvolver projetos próprios.
